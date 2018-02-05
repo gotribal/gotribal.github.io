@@ -1,0 +1,1 @@
+# gotribal.github.io
